@@ -1,4 +1,32 @@
 ## Bing Wallpaper
+2022-08-07 | [Salt flats in San Francisco Bay (© Jeffrey Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SFSaltFlats_EN-US2301713772_UHD.jpg) 
+
+2022-08-06 | [Edinburgh city skyline at night, Scotland (© Suranga Weeratuna/Alamy)](https://cn.bing.com/th?id=OHR.MilitaryTattoo_EN-US2404986711_UHD.jpg) 
+
+2022-08-05 | [Farmers collecting water lilies in the Satla marshland near Bagdha, Barisal, Bangladesh (© Mustasinur Rahman Alvi/Future Publishing via Getty Images)](https://cn.bing.com/th?id=OHR.BangladeshWaterLilies_EN-US1994505786_UHD.jpg) 
+
+2022-08-04 | [Red-necked grebes in Germany (© Edo van Uchelen/Minden Pictures)](https://cn.bing.com/th?id=OHR.RedneckedGrebe_EN-US1190259802_UHD.jpg) 
+
+2022-08-03 | [The Hickman Bridge at Capitol Reef National Park, Utah (© Tim Fitzharris/Minden Pictures)](https://cn.bing.com/th?id=OHR.HickmanBridge_EN-US1087333208_UHD.jpg) 
+
+2022-08-02 | [An active lava tube, Hawai'i Volcanoes National Park, Hawaii (© Tom Schwabel/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.LavaTube_EN-US0984183891_UHD.jpg) 
+
+2022-08-01 | [Noctilucent clouds in Lithuania (© ljphoto7/Getty Images)](https://cn.bing.com/th?id=OHR.NoctilucentClouds_EN-US0838966037_UHD.jpg) 
+
+2022-07-31 | [Rainforest hike near Milford Sound/Piopiotahi in New Zealand (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.FiordlandRainforest_EN-US0539876428_UHD.jpg) 
+
+2022-07-30 | [Tigresses of Telia Lake in Tadoba Andhari Tiger Reserve, India (© Ashish Parmar/Alamy)](https://cn.bing.com/th?id=OHR.FourTigresses_EN-US0466229333_UHD.jpg) 
+
+2022-07-29 | [Longs Peak in Rocky Mountain National Park, Colorado (© Andrew R. Slaton/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.LongsPeak_EN-US4189093342_UHD.jpg) 
+
+2022-07-28 | [Nabataean tomb in Mada'in Saleh (aka Hegra), Saudi Arabia (© Tuul & Bruno Morandi/Getty Images)](https://cn.bing.com/th?id=OHR.NabateanTomb_EN-US4126304993_UHD.jpg) 
+
+2022-07-27 | [Mangrove forest in the Saloum Delta National Park, Senegal (© mariusz_prusaczyk/Getty Images)](https://cn.bing.com/th?id=OHR.MangroveDay_EN-US4051479273_UHD.jpg) 
+
+2022-07-26 | [Golden Gallopers Carousel on the seafront in Brighton, East Sussex, England (© Graham Prentice/Alamy)](https://cn.bing.com/th?id=OHR.MGRBrighton_EN-US4452708176_UHD.jpg) 
+
+2022-07-25 | [Amelia Earhart teaching students in Newark, New Jersey (© Bettmann/Getty Images)](https://cn.bing.com/th?id=OHR.AmeliaEarhart_EN-US4396076505_UHD.jpg) 
+
 2022-07-24 | [Elephant hawk-moth on foxglove flower (© David Chapman/Alamy)](https://cn.bing.com/th?id=OHR.FoxgloveHawkmoth_EN-US4340017481_UHD.jpg) 
 
 2022-07-23 | [Our Lady of the Rocks and Saint George Island in the Bay of Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)](https://cn.bing.com/th?id=OHR.SGIMontenegro_EN-US4280095085_UHD.jpg) 
